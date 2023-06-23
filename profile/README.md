@@ -6,4 +6,4 @@
 🌈 Contribution guidelines - With issue and PR <br>
 👩‍💻 Useful resources - On our futur website <br>
 🍿 Fun facts - We are French <br><br>
-**Our Discord :** https://discord.gg/6jry98HanV
+**Our Discord :** https://discord.gg/smzdfrewC9
